@@ -1,1 +1,0 @@
-# jendry.github.io
